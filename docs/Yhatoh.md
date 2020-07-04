@@ -1,3 +1,5 @@
 # Lenguajes de programación
 
-Los mejores ayudantes son el gabo y el otro
+* Buen ramo mejores tareas
+* El besto ayudante
+* Mario nos pichuleo
